@@ -1,0 +1,15 @@
+INGREDIENTS:
+- 1 cup/ 70g of toasted pecans
+- 3 sleevs/ 430g og graham crackers
+- 3/4 tsp/ 3g of salt
+- 1/2 cup/ 100g of brown sugar
+- 1/2 cup/ 113g of unsalted butter
+- 2lbs/ 900g of cream cheese
+- 1/3 cup/ 66g of sugar
+- 1/4 cup/ 60ml of condensed milk
+- 1 tbsp/ 15ml of lemon juice
+- 1/3 cup/ 80g of sour cream
+- 1 tbsp/ 15ml of vanilla essence
+- 1/2 cup/ 120 ml of whipping cream
+- 3 tbsp/ 25g of powdered sugar
+- Variety of fruits and berries (optional)
